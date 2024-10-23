@@ -1,5 +1,5 @@
 Hi there!
-If you're using this then you're probably lazy as hell that you can't do quadratics
+If you're using this then enjoy
 
 
 
